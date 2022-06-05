@@ -53,7 +53,7 @@
 
 # 📰 Talking about Information
 
-<img align="right" width=200px alt="PNG" src="https://i.pinimg.com/originals/a0/10/21/a010215b786ada4176ae237b5b154310.gif" />
+<img align="right" width=200px alt="PNG" src="https://i.gifer.com/embedded/download/2MjY.gif" />
 
 -   ⚜️ My name is Nguyễn Hải Đăng.
 -   ❤️‍🔥 26/02/2003
