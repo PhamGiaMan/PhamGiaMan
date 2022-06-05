@@ -22,7 +22,7 @@ Sở thích
 
 Thông tin liên lạc
 
-⚡ Faceebok : [Phạm Gia Mẫn] (https://www.facebook.com/sadboiz2mais)
+⚡ Faceebok : [Phạm Gia Mẫn](https://www.facebook.com/sadboiz2mais)
 
 ⚡ Gmail : phamgiaman296@gmail.com
 
